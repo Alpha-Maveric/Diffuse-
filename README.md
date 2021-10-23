@@ -1,1 +1,3 @@
-# Diffuse-
+# Diffuse media
+
+# We are in Bangalore
